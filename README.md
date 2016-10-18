@@ -1,5 +1,5 @@
 # hello-world
 
 Olá!!!
-Sou Leandro fundador da Neo-L-Inc e gostaria de fazer algumas amizades...
+Sou Leandro Carvalho Rodrigues fundador da Neo-L-Inc e gostaria de fazer algumas amizades...
 Valeu pessoal.
